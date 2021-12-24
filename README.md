@@ -1,4 +1,4 @@
-# Submission 3 Belajar Fundamental Android Dicoding 
+# Belajar Fundamental Aplikasi Android Submission 3 (Dicoding)
 
 :star: :star: :star: :star: :star: 
 <br />
