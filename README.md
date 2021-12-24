@@ -1,3 +1,4 @@
 # Submission 3 Belajar Fundamental Android Dicoding 
 
-Created by Alwan Fauzi
+:star: :star: :star: :star: :star:
+Submission Rating (5/5)
